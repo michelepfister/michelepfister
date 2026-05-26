@@ -1,4 +1,4 @@
-## Hi there, I'm Michèle nice to meet you!
+## Hi there, I'm Michèle nice to have you here!
 
 I'm currently using
 
